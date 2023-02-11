@@ -1,3 +1,3 @@
-# Goofy Ahh Studio
+# Goofy Ahh Text
 
-hi this is official goofy ahh studio github account lol
+bruh
